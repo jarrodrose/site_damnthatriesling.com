@@ -12,8 +12,8 @@ Space as a concept of distance or emptiness between things is hard to define if 
 
 Space between people, I don’t think that exists. It is a defence mechanism. We think it keeps us safe, but all it does is separate us from others. Sometimes people feel it is necessary because it helps prevent painful memories, helps ignore tricky situations or not confront new situations. In reality, it is just ourselves trying to avoid dealing with the scary situation. It’s only in our minds and only in part of our minds. It only exists when we choose it to be there. It is the excuse, the explanation for a situation we don’t fully understand, the person we want to avoid. If you chose to avoid an individual/situation, that’s not space. That’s a choice. But having ‘space’ from something is a deflection, an avoidance. It can steal away the opportunity to evolve our mental pathways to become new versions of ourselves. Can it be useful short term, yes. But it is only a mental construct that is replaced when we actually deal with something. It is not ‘there’
 
-Outer space - There.
-The gap between things - ?
+Outer space - There.   
+The gap between things - ?   
 Space between people - Not there.
 
 Is space there? Sometimes.
