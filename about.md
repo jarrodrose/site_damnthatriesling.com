@@ -12,7 +12,7 @@ I am not a great writer or great thinker, but I am having fun with these.
 
 Let this journey begin.
 
-**Question Rules**
+# Question Rules
 - Answer should be mostly stream of consiousness.
 - Answer are only able to be edited for readability and grammar, not content or structure.
 - Answers don’t have to respond to a question as such, but should have a theme at least.
