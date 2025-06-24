@@ -1,6 +1,8 @@
 # _config.yml
 exclude: ['./README.md']
 
+future: false
+
 title: "Riesling Writings"
 author:
   name: Jarrod Rose
