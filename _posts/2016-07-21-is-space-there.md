@@ -18,6 +18,8 @@ Space between people - Not there.
 
 Is space there? Sometimes.
 
+___
+
 [Only edited to correct spelling and phrasing.]   
 [I want to edit it so much. Change it, scrap it, start again and refine the ideas into coherency.]   
 [But that’s not the point]
