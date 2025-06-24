@@ -1,5 +1,7 @@
 ---
 title: Teich - Excerpt
+description: Excerpts from a character diary
+tags: rpg
 ---
 
 (*Excerpt from a character diary.*)
