@@ -1,0 +1,22 @@
+# _config.yml
+exclude: ['./README.md']
+
+title: "Riesling Writings"
+author:
+  name: Jarrod Rose
+description: "Random Writings, Without Warning, Plainly Placed."
+url: "https://damnthatriesling.com/"
+
+plugins:
+  - jekyll-feed
+  - jekyll-seo-tag
+  - jekyll-remote-theme # Added to allow for using Minima 3.x
+
+# set up remote_theme to use Minima 3.x
+remote_theme: jekyll/minima
+#theme: minima # Default Github Theme v2.x currently
+
+
+minima:
+  skin: classic
+  hide_site_feed_link: true
