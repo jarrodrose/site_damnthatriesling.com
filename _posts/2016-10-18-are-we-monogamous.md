@@ -20,7 +20,7 @@ There are many levels of friendship from first meeting to best-est-friends-forev
 
 Monogamy is about possession. "This is mine and you cannot have it". "I don't trust my partner to not leave so I bind them with words and shame for certain actions". "It's all about me. I have to be enough to fill their whole world forever." You don't own other people. Even if you could, morally you should share with others.
 
-Monogamy is based on jealousy and a fear of loss. It is the lack of trust in your partner to be honest with you and to factor you into their lives. Lack of trust that they cannot engage with other without taking away from what you have or leaving.
+Monogamy is based on jealousy and a fear of loss. It is the lack of trust in your partner to be honest with you and to factor you into their lives. Lack of trust that they cannot engage with others without taking away from what you have or leaving.
 
 Your partner cannot be stolen. You don't own them. They are their own individual person at all times! If they chose to share their lives with you, you should be honoured.
 
