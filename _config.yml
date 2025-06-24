@@ -1,7 +1,7 @@
 # _config.yml
 exclude: ['./README.md']
 
-future: false
+# future: false
 timezone: Australia/Melbourne
 
 title: "Riesling Writings"
