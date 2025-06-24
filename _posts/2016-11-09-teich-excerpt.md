@@ -4,10 +4,6 @@ description: Excerpts from a character diary
 tags: rpg
 ---
 
-(*Excerpt from a character diary.*)
-
-___
-
 My dreams are becoming almost more real than life itself; full of starlight and wicked exuberance. They feel old; ancient. A presence of kin.
 
 ___
