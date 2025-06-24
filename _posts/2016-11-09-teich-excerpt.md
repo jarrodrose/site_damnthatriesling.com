@@ -2,7 +2,7 @@
 title: Teich - Excerpt
 ---
 
-*Excerpt from a character diary.*
+(*Excerpt from a character diary.*)
 
 ---
 
@@ -22,7 +22,7 @@ A wave washes over the board, coming from nowhere and I know I caused it. The fi
 
 I return to my tribe following my experience on the lake. The Matriarch enquires after my distracted expression. We have a long discussion regarding my experience and to my dismay, the matriarch seems to become wary of me and my story. She tells tales of others, who in similar circumstances wandered into the Fractured Wylds. The tales get increasingly bizarre but there seems to be grains of truth in each of them.
 
-I return to the Abyss several times over the next couple of weeks trying to repeat my experience. heightened states are achieved but nothing compared to that day. Feelings of home emanate from the Abyss.
+I return to the Abyss several times over the next couple of weeks trying to repeat my experience. Heightened states are achieved, but nothing compared to that day. Feelings of home emanate from the Abyss.
 
 ---
 
@@ -42,7 +42,7 @@ IT'S HERE! It's here, feeling old beyond time, yet infinitely youthful.
 
 "Meaning," I reply, after a time.
 
-"THAT IS A WEIGHTY QUESTIONS. WHAT YOU LEARN AND HOW YOU USE IT COULD BE A DANGER. i NEED A GUARANTEE."
+"THAT IS A WEIGHTY QUESTIONS. WHAT YOU LEARN AND HOW YOU USE IT COULD BE A DANGER. I NEED A GUARANTEE."
 
 "A guarantee of what?" I ask.
 
