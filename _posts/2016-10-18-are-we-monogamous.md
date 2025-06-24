@@ -24,9 +24,9 @@ Monogamy is based on jealousy and a fear of loss. It is the lack of trust in you
 
 Your partner cannot be stolen. You don't own them. They are their own individual person at all times! If they chose to share their lives with you, you should be honoured.
 
-So many relationships end with one person cheating on their partner. so many relationships are about control and power, not about love. Love is not about restraint or control. Love is about freedom, about caring, about life. It is life.
+So many relationships end with one person cheating on their partner. So many relationships are about control and power, not about love. Love is not about restraint or control. Love is about freedom, about caring, about life. It is life.
 
-Having said all that, being with only one person as your live partner is not wrong. It's not even undesirable. I'm saying that monogamy is not default and is not the true state of humans. You can have only one life partner and still have a best friend that you tell all your secrets to. You are not monogamous! You have two life partners; you just happen to only have sex with one of them. Fucking is not the indication of good relationships.
+Having said all that, being with only one person as your 'life partner' is not wrong. It's not even undesirable. I'm saying that monogamy is not default and is not the true state of humans. You can have only one life partner and still have a best friend that you tell all your secrets to. You are not monogamous! You have two life partners; you just happen to only have sex with one of them. Fucking is not the indication of good relationships.
 
 Non-monogamy is all about accepting that all the important people in your life hold a piece of your heart, in accepting the adventures of socialising and being free to explore your world of experiences. This has nothing to do with a life of no rules/anarchy. It does not have to be anarchy, you can have agreements between people. You already do. Agreements with yourself. Agreements with your partner/s. Agreements with the arbitrarily labels of friends or best friends
 
