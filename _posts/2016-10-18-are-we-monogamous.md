@@ -18,7 +18,7 @@ Whatever you said, "Why?"
 
 There are many levels of friendship from first meeting to best-est-friends-forever. Why is the border between friend and forbidden partner usually a physical one? Such an arbitrary division. (Don't get me started on the completely unbalanced view society has in regards to promiscuity, with a section of the population being cheered on, while the other is shunned, shammed.) Is hugging acceptable between friends? Why? Is holding hands? Why? Massage? Snuggling on a couch? Kissing? Stroking? Groping? Fucking? Why not? Why did you draw the line where you did?
 
-Monogamy is about possession. "This is mine and you cannot have it". "I don't trust my partner to not leave so I bind them with words and shame for certain actions". "It's all about me. I have to be enough to fill their whole world forever." You don't owe other people. Even if you could, morally you should share with others.
+Monogamy is about possession. "This is mine and you cannot have it". "I don't trust my partner to not leave so I bind them with words and shame for certain actions". "It's all about me. I have to be enough to fill their whole world forever." You don't own other people. Even if you could, morally you should share with others.
 
 Monogamy is based on jealousy and a fear of loss. It is the lack of trust in your partner to be honest with you and to factor you into their lives. Lack of trust that they cannot engage with other without taking away from what you have or leaving.
 
