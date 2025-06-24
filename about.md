@@ -19,11 +19,11 @@ Let this journey begin.
 - Sometimes I will write because I want to in a format that does not conform. :-)
 
 
-** Snippit Rules **
+**Snippit Rules**
 - There are no rules
 
 (I reserve the right to change the rules at any time because I can)
 
 
-** NOTE: ** 
+**NOTE:** 
 I have included some past writings that were written in this style as it seems to fit.
