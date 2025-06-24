@@ -2,6 +2,7 @@
 exclude: ['./README.md']
 
 future: false
+timezone: Australia/Melbourne
 
 title: "Riesling Writings"
 author:
