@@ -8,7 +8,7 @@ My dreams are becoming almost more real than life itself; full of starlight and 
 
 ___
 
-As I cross the lake, I am inexplicably drawn to the Glittering Abyss. Th presence is there. A dual view of the world appears - the normal and the hyper real, full of glorious beauty, colourful delights, delectable wickedness and utter darkness. The presence speak to me without words - of belonging, of mutually beneficial objectives and of the true natural order of the world.
+As I cross the lake, I am inexplicably drawn to the Glittering Abyss. The presence is there. A dual view of the world appears - the normal and the hyper real, full of glorious beauty, colourful delights, delectable wickedness and utter darkness. The presence speak to me without words - of belonging, of mutually beneficial objectives and of the true natural order of the world.
 
 My world erupts with sensation, a burst of energy and power like nothing I have experienced before. The feeling dissipates, leaving me with the feeling of new possibilities.
 
